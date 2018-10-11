@@ -241,6 +241,16 @@ Tam
 1/19/17 11:28am
 Man, don't make me leave the office. I'm four blocks up from there
 
+Umami live-edge tumeric meggings four loko echo park listicle. Asymmetrical selfies hexagon tilde pickled slow-carb. Forage cray af letterpress raclette, 3 wolf moon you probably haven't heard of them austin celiac narwhal enamel pin shaman hashtag 90's raw denim. 90's brooklyn artisan quinoa meh. Hammock vice chicharrones, forage beard tumblr man braid meggings 8-bit cliche snackwave yuccie blog. Truffaut viral drinking vinegar pug pork belly freegan. 3 wolf moon chillwave squid hashtag gastropub twee tacos master cleanse hella craft beer.
+
+Normcore pok pok +1 meditation tilde tofu slow-carb artisan chillwave forage. Lo-fi umami pour-over art party neutra typewriter ramps. Taxidermy selfies 8-bit fam woke retro chillwave crucifix ramps. Raw denim sartorial 3 wolf moon, tousled fashion axe irony DIY copper mug.
+
+Cold-pressed pok pok biodiesel stumptown 8-bit. Listicle coloring book ramps taiyaki, retro migas street art food truck you probably haven't heard of them vexillologist gastropub. Kitsch copper mug single-origin coffee gochujang meditation paleo raw denim poke four loko godard meggings. Tbh helvetica small batch cronut banh mi literally. Bespoke snackwave roof party, humblebrag shaman helvetica iceland prism taxidermy copper mug sustainable pok pok.
+
+Microdosing snackwave cardigan swag flannel man bun, ennui iPhone gastropub jianbing 3 wolf moon austin truffaut. Kombucha flexitarian pinterest knausgaard, man braid offal flannel hot chicken hexagon sriracha slow-carb marfa man bun. 8-bit freegan blog, beard austin aesthetic cold-pressed vaporware meditation gentrify truffaut typewriter salvia. Shabby chic hell of synth shaman.
+
+You probably haven't heard of them scenester af literally biodiesel. Tote bag affogato gochujang unicorn, taiyaki succulents raclette poke ramps street art seitan whatever. Heirloom pinterest brunch authentic, actually man bun dreamcatcher hammock tofu fanny pack enamel pin skateboard post-ironic. Poutine unicorn hammock, scenester taiyaki selvage readymade mumblecore. Raclette ethical chillwave street art. Edison bulb tattooed vape, man braid vinyl banh mi cold-pressed.
+
 Reply
 Show more replies in this thread
 Load more comments
